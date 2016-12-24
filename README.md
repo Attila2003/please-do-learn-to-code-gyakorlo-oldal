@@ -1,0 +1,1 @@
+# please-do-learn-to-code-gyakorlo-oldal
